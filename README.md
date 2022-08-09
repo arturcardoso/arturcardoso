@@ -1,4 +1,4 @@
-### Olá, Eu sou Artur Cardoso 👋
+### Olá, Eu sou Artur Gustavo Cardoso 👋👋👋
 
 - 🔭 Atualmente eu sou estagiário da CIEE de Itu
 - 🌱 Eu sou estudante da FATEC Itu no curso de Análise e Desenvolvimento de Sistemas
